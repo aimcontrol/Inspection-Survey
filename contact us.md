@@ -3,7 +3,7 @@ Inspection-Survey
 
 AIM Control is Global Third Party Inspection in providing expertise expert independent surveyors inspectors, inspectorate, verification inspection and survey, quality control services, marine survey and consultant, tally, P&amp;I Correspondents, insured cargo and marine claim investigation &amp; adjusting, diving works and underwater hull cleaning, vendor expediting and mechanical inspection services, quality testing &amp; analysis, sampling, certification, independent surveyors and inspectors based in Vietnam, China, India, Korea, Asia, Europe, the Middle East Anywhere of Countries. Our Local Email: inspection@aimcontrolgroup.com, aimcontrol@hotmail.com, cell: +84903615612.
 Dr Capt Nguyen Te Nhan / G.D
-
+https://aimcontrolgroup.com/en/contact.html
 Agriculture - Industry - Marine Control Survey Inspection Group
 -------------------------------------------------------
 Tel   : +84-8-3832-7204
